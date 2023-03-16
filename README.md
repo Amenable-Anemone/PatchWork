@@ -13,4 +13,4 @@ _Event Management for Non-Profits_
 
 ## Contact
 
-Regina Kwan | [LinkedIn] (https://www.linkedin.com/in/reginakwan/)
+Regina Kwan - *[LinkedIn](https://www.linkedin.com/in/reginakwan/)*
